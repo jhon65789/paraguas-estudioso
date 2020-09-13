@@ -1,1 +1,2 @@
 
+Contrivucion prinsipal
